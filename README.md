@@ -1,3 +1,5 @@
-# Hey! Welcome to PEACE AND QUIET
-This is the PERFECT place to come to if you're trying to pursue a goal and are feeling down.
-So sit back, relax, and be INSPIRED.
+# Surprising Facts
+
+There are many surprising facts out there, but you are sure to find one here that you haven't seen anywhere else. Strap in and get ready to get shocked.
+
+## The Facts
