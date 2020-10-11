@@ -5,7 +5,9 @@ There are many surprising facts out there, but you are sure to find one here tha
 ## The Facts
 
 1. Babies are born without kneecaps.
-![AmongUs] (AmongUs.jpg)
+
+ ![AmongUs](AmongUs.jpg)
+
 2. There are spiders living in the pores of your face right now.
 
 3. The color you see in the dark is called eigengrau, or intrinsic gray.
