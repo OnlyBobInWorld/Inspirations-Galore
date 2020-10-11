@@ -6,20 +6,32 @@ There are many surprising facts out there, but you are sure to find one here tha
 
 1. Babies are born without kneecaps.
 
-
+![Baby](BBZoY31.jpg)
 
 2. There are spiders living in the pores of your face right now.
 
+![Spider](images.jpg)
+
 3. The color you see in the dark is called eigengrau, or intrinsic gray.
+
+![Eigengrau](download.png)
 
 4. There's a law in Connecticut that pickles must bounce.
 
+![Pickles](memory.jpg)
+
 5. The tiny pocket above the actual pocket in your jeans is for pocket watches.
+
+![Pocket](download (1).jpg)
 
 6. Your nose and ears never stop growing throughout your life.
 
+![NoseEars](download (2).jpg)
+
 7. People can have bodily functions even after death.
 
+![Death](Dead.jpg)
+
 8. The game Among Us is not new; it was just found and made popular by streamers and gamers.
- 
- ![AmongUs](AmongUs.jpg)
+
+![AmongUs](AmongUs.jpg)
