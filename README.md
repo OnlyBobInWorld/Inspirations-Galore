@@ -6,7 +6,7 @@ There are many surprising facts out there, but you are sure to find one here tha
 
 1. Babies are born without kneecaps.
 
- ![AmongUs](AmongUs.jpg)
+
 
 2. There are spiders living in the pores of your face right now.
 
@@ -21,3 +21,5 @@ There are many surprising facts out there, but you are sure to find one here tha
 7. People can have bodily functions even after death.
 
 8. The game Among Us is not new; it was just found and made popular by streamers and gamers.
+ 
+ ![AmongUs](AmongUs.jpg)
