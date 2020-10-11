@@ -8,11 +8,11 @@ There are many surprising facts out there, but you are sure to find one here tha
 
 ![Baby](BBZoY31.jpg)
 
-2. There are spiders living in the pores of your face right now.
+1. There are spiders living in the pores of your face right now. 2
 
 ![Spider](images.jpg)
 
-3. The color you see in the dark is called eigengrau, or intrinsic gray.
+1. The color you see in the dark is called eigengrau, or intrinsic gray. 3
 
 ![Eigengrau](download.png)
 
