@@ -8,30 +8,30 @@ There are many surprising facts out there, but you are sure to find one here tha
 
 ![Baby](BBZoY31.jpg)
 
-1. There are spiders living in the pores of your face right now. 2
+1. There are spiders living in the pores of your face right now.
 
 ![Spider](images.jpg)
 
-1. The color you see in the dark is called eigengrau, or intrinsic gray. 3
+1. The color you see in the dark is called eigengrau, or intrinsic gray.
 
 ![Eigengrau](download.png)
 
-4. There's a law in Connecticut that pickles must bounce.
+1. There's a law in Connecticut that pickles must bounce.
 
 ![Pickles](memory.jpg)
 
-5. The tiny pocket above the actual pocket in your jeans is for pocket watches.
+1. The tiny pocket above the actual pocket in your jeans is for pocket watches.
 
 ![Pocket](Pocket.jpg)
 
-6. Your nose and ears never stop growing throughout your life.
+1. Your nose and ears never stop growing throughout your life.
 
 ![NoseEars](NoseEars.jpg)
 
-7. People can have bodily functions even after death.
+1. People can have bodily functions even after death.
 
 ![Death](Dead.jpg)
 
-8. The game Among Us is not new; it was just found and made popular by streamers and gamers.
+1. The game Among Us is not new; it was just found and made popular by streamers and gamers.
 
 ![AmongUs](AmongUs.jpg)
