@@ -4,7 +4,7 @@ There are many surprising facts out there, but you are sure to find one here tha
 
 ## The Facts
 
-![Baby]https://img-s-msn-com.akamaized.net/tenant/amp/entityid/BBZoY31.img?h=552&w=750&m=6&q=60&u=t&o=f&l=f&x=772&y=862
+![Link] (https://img-s-msn-com.akamaized.net/tenant/amp/entityid/BBZoY31.img?h=552&w=750&m=6&q=60&u=t&o=f&l=f&x=772&y=862)
 1. Babies are born without kneecaps.
 
 2. There are spiders living in the pores of your face right now.
