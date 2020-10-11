@@ -22,11 +22,11 @@ There are many surprising facts out there, but you are sure to find one here tha
 
 5. The tiny pocket above the actual pocket in your jeans is for pocket watches.
 
-![Pocket](download (1).jpg)
+![Pocket](download(1).jpg)
 
 6. Your nose and ears never stop growing throughout your life.
 
-![NoseEars](download (2).jpg)
+![NoseEars](download(2).jpg)
 
 7. People can have bodily functions even after death.
 
